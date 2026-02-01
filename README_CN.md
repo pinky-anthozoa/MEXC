@@ -2,9 +2,7 @@
 
 ---
 
-# 2026 最新｜输入 MEXC 推广邀请码【mexc-2026VIP】领取最高 10,000U 赠金
-
-**作者**：币安队长
+# 2026 最新｜输入 MEXC 推广邀请码【mexc-2026VIP】领取全网最高30%手续费减免 + 最高 10,000U 赠金
 
 ---
 
@@ -15,6 +13,8 @@
 * **多 10,000 USDT 新户赠金**
 * **参与 MEXC Airdrop+ 活动**：领取最高 1,000 USDT 赠金
 * **新旧用户首单享最高包赔 $100！**
+
+![输入 MEXC 推广邀请码【mexc-2026VIP】领取全网最高30%手续费减免 + 最高 10,000U 赠金](https://github.com/user-attachments/assets/dc6f77cc-f1ce-4ec3-be0c-fb3ceac3e0e5)
 
 ---
 
@@ -90,6 +90,8 @@ A: 输入【 mexc-2026VIP 】可领取 10,000 USDT 新户赠金、参与 Airdrop
 
 **Q: MEXC 交易所是诈骗吗？**
 A: 目前无直接证据指出 MEXC 是诈骗。MEXC 成立于 2018 年，全球用户超过 4,000 万，特色是手续费低、币种齐全（超过 1,700 种）。
+
+![输入 MEXC 推广邀请码【mexc-2026VIP】领取全网最高30%手续费减免 + 最高 10,000U 赠金](https://github.com/user-attachments/assets/1a105be0-8c84-4be8-8739-e741dd02d7d8)
 
 ---
 
